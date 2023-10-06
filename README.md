@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nish7750
-- 👀 I’m interested in codind
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning artificial intelligence and data science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nishantkakde1703@gmail.com
