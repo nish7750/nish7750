@@ -6,7 +6,7 @@
 
 💻 I'm always eager to learn new things and collaborate on interesting projects. Feel free to explore my repositories or reach out to discuss AI, data science, or any exciting opportunities!
 
-📫 How to reach me:Your Email: nishantkakde703@gmail.com
+📫 How to reach me:Your Email: nishantkakde1703@gmail.com
                     Your LinkedIn:linkedin.com/in/nishant-kakde-patil-034a1222a
 
 
